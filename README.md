@@ -2,6 +2,7 @@
 - Good at making arduino base systems
 - Coder, mechanic, electrician.
 - How to reach me i have personal accounts but please do reach me via gmail matthewd.delrosario@gmail.com
+-links https://qrco.de/bfU6Ig
 
 
 <!---
